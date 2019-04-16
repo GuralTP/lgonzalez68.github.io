@@ -9,3 +9,8 @@ I chose to take this class as a part of my curriculum to eventually get a degree
   + Browsing the internet
   + Watching Movies
 
+Here are a couple of my interests
+
+<https://youtu.be/ZPdk5GaIDjo>
+
+<https://en.wikipedia.org/wiki/Neon_Genesis_Evangelion>
