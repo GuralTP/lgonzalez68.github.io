@@ -10,4 +10,4 @@
 
 ![alt text](https://www.webopedia.com/imagesvr_ce/2123/computer.jpg)
 
-[Bio](
+([Biography](biography.html "Biography")
