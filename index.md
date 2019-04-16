@@ -1,5 +1,4 @@
 # Welcome to my website! 
- background color: #F0B27A
 ##### This is an assignment for school and trying it out for the first time!
 ##### Here are few reasons why I am taking this class!
 + Reasons for taking this class:
