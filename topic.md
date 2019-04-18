@@ -12,4 +12,4 @@ the end of one the trails, I carved my name into one of the trees, just like man
 and see if its still there.
 ![Beautiful](https://secure.img1-fg.wfcdn.com/im/24661871/resize-h800-w800%5Ecompr-r85/5795/57951881/%2527Japan%252C+Kyoto%252C+Fushimi-Inari-Taisha+Torii+Gates%2527+Photographic+Print+on+Wrapped+Canvas.jpg)
 
-[Homepage](lgonzalez68.github.io)
+[Homepage](lgonzalez68.github.io
