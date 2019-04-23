@@ -15,4 +15,4 @@ Here are a couple of my interests
 
 [Neon Genesis Evangelion](https://en.wikipedia.org/wiki/Neon_Genesis_Evangelion)
 
-[Homepage](lgonzalez68.github.io)
+[Homepage](https://lgonzalez68.github.io)
