@@ -8,6 +8,8 @@ I chose to take this class as a part of my curriculum to eventually get a degree
   + Exercisiing
   + Browsing the internet
   + Watching Movies
+  
+  ![alt text](https://www.veracode.com/sites/default/files/wp-content/uploads/2013/01/9182721_s-300x224.jpg)
 
 Here are a couple of my interests
 
